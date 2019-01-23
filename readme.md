@@ -487,3 +487,9 @@ There are 10 types of people in this world, those who understand binary and thos
 **A:** Suspense
 
 ---
+
+**Q:** How to get a guarenteed "Yes" response from the Girl.
+
+**A:** sudo will you marry me
+
+---
